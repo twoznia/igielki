@@ -1160,7 +1160,7 @@ To zdanie jest w kronice zapisane bardzo starannie i widać, że Zdzisiu długo 
 
 Zdzisiu miał w torbie paczkę zaadresowaną do biblioteki w Mchowie Górnym, którą niósł od września, i stał teraz przy tabliczce informującej, że Mchowo Górne jest zamknięte z powodu remontu.
 
-Był to pierwszy raz w jego czterdziestojednoletniej karierze, kiedy napisał, że nie wie, co dalej.
+Był to pierwszy raz w jego sześćdziesięciopięcioletniej karierze, kiedy napisał, że nie wie, co dalej.
 
 ---
 
