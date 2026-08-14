@@ -1,0 +1,6 @@
+# Wygenerowane pliki do druku (tworzone na żądanie przez igielki-druk, nie śledzone)
+druk/
+
+# Tymczasowe pliki blokad MS Word / Office
+~$*
+*.tmp
