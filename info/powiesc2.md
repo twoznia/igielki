@@ -20,7 +20,7 @@ Czyli przez cały pierwszy tom Florka prowadziła kronikę nie swojego miasteczk
 
 **Domknięcie:** Księgę trzeba oddać. Florka bardzo, bardzo nie chce, i to jest sedno całego tomu: co się robi z rzeczą, która jest dla nas ważna i jednocześnie nie jest nasza.
 
-**Drugi wątek, który biegnie pod spodem:** babcia Wiesia była w Mchowie Górnym. Naprawdę. W 1961, tuż przed zamknięciem. Mówiła o tym przez całe życie i nikt jej nigdy nie uwierzył, bo osoba, która od czterdziestu jeden lat twierdzi, że była traktorem, wyczerpała swój kredyt zaufania. To jest lekcja, która w tym tomie dotyczy również Borysa i jest podana bez ani jednego zdania morału.
+**Drugi wątek, który biegnie pod spodem:** babcia Wiesia była w Mchowie Górnym. Naprawdę. W 1961, tuż przed zamknięciem. Mówiła o tym przez całe życie i nikt jej nigdy nie uwierzył, bo osoba, która od sześćdziesięciu pięciu lat twierdzi, że była traktorem, wyczerpała swój kredyt zaufania. To jest lekcja, która w tym tomie dotyczy również Borysa i jest podana bez ani jednego zdania morału.
 
 **Czego uczy ten tom:** czytania od pierwszej głoski, dwuznaków, liczenia do jedenastu, mycia rąk, przyjmowania kogoś nowego, i tego, że różnica nie jest wadą do naprawienia.
 
@@ -46,7 +46,7 @@ Czyli przez cały pierwszy tom Florka prowadziła kronikę nie swojego miasteczk
 9. **Litery, które chodzą parami** - Sz, cz, rz, dz. Cztery litery, które są dwiema literami i jednym dźwiękiem, i cała klasa ma z tym problem.
 10. **Napis na okładce** - Guzik czyta okładkę Księgi. Zajmuje mu to jedenaście minut i wywraca wszystko.
 11. **To nie jest twoja księga** - Cztery słowa, po których Florka nie odzywa się przez pół dnia.
-12. **Jedenaście przesyłek** - Zdzisiu wyjmuje z torby resztę poczty sprzed czterdziestu jeden lat.
+12. **Jedenaście przesyłek** - Zdzisiu wyjmuje z torby resztę poczty sprzed sześćdziesięciu pięciu lat.
 13. **Babcia mówiła prawdę** - Jedna z tych przesyłek jest dowodem. Nikt nie może w to uwierzyć.
 14. **Kto ciągle zmyśla** - Borys siedzi na schodkach i rozumie coś o sobie. Rozdział, w którym nikt nikogo nie poucza.
 
@@ -1263,11 +1263,11 @@ Zdzisiu przyszedł w czwartek i szedł od furtki do drzwi czterdzieści minut, c
 
 Miał ze sobą torbę.
 
-Torba Zdzisia była legendarna. Nikt nigdy nie widział jej wnętrza. Zdzisiu nosił ją od czterdziestu jeden lat i wyjmował z niej rzeczy w tempie mniej więcej jednej na kilka miesięcy, co sprawiało, że w Mchowie Dolnym uważano ją za coś pomiędzy urzędem a studnią bez dna.
+Torba Zdzisia była legendarna. Nikt nigdy nie widział jej wnętrza. Zdzisiu nosił ją od sześćdziesięciu pięciu lat i wyjmował z niej rzeczy w tempie mniej więcej jednej na kilka miesięcy, co sprawiało, że w Mchowie Dolnym uważano ją za coś pomiędzy urzędem a studnią bez dna.
 
 - Panno Florko - powiedział Zdzisiu od progu. - Mam sprawę służbową.
 
-- Znowu coś sprzed czterdziestu lat?
+- Znowu coś sprzed sześćdziesięciu pięciu lat?
 
 - Tak jest.
 
@@ -1808,7 +1808,7 @@ Kłótnia, która nastąpiła, była najgorszą kłótnią w obu tomach tej ksi�
 
 - Naprawiłaś.
 
-- Ja w niej napisałam ostatnie zdanie! Ostatnie zdanie, babciu, którego ty nie umiałaś napisać przez czterdzieści jeden lat!
+- Ja w niej napisałam ostatnie zdanie! Ostatnie zdanie, babciu, którego ty nie umiałaś napisać przez sześćdziesiąt pięć lat!
 
 - To prawda - powiedziała babcia Wiesia bardzo spokojnie. - I było to bardzo dobre zdanie.
 
