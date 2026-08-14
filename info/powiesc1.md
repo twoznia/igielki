@@ -1135,7 +1135,7 @@ To był zły znak. Babcia Wiesia nigdy nie odkładała fasoli.
 
 - To dopisz.
 
-- Próbowałam. Czterdzieści jeden lat temu. Siedziałam nad nią całą noc i nie umiałam.
+- Próbowałam. Sześćdziesiąt pięć lat temu. Siedziałam nad nią całą noc i nie umiałam.
 
 - Dlaczego?
 
@@ -1163,7 +1163,7 @@ Za oknem Guzik uczył rudego kota chodzić za sobą po podwórku. Rudy kot nie z
 
 Florka pochyliła się nad Księgą i po raz pierwszy naprawdę przyjrzała się okładce. Napis na środku był wytłoczony nierówno, jakby ktoś robił to bez wprawy, i miał na końcu jedną literę zdecydowanie za dużą.
 
-Wyglądał dokładnie jak pismo sześciolatki, tylko starsze o czterdzieści jeden lat.
+Wyglądał dokładnie jak pismo sześciolatki, tylko starsze o sześćdziesiąt pięć lat.
 
 - Babciu - powiedziała Florka bardzo ostrożnie. - Ile ty wtedy miałaś lat?
 
@@ -1297,7 +1297,7 @@ Odłożyła miskę.
 
 I to był ten moment, w którym Florka zrozumiała, jak duża jest ta sprawa.
 
-Bo babcia Wiesia mogła opowiadać nieprawdę przez czterdzieści jeden lat i to nikomu nie przeszkadzało. Ale nie mogła opowiadać jej płasko.
+Bo babcia Wiesia mogła opowiadać nieprawdę przez sześćdziesiąt pięć lat i to nikomu nie przeszkadzało. Ale nie mogła opowiadać jej płasko.
 
 ---
 
@@ -1533,7 +1533,7 @@ Popatrzył na stronę.
 
 Potem popatrzył jeszcze raz.
 
-- Czterdzieści jeden lat temu - powiedział.
+- Sześćdziesiąt pięć lat temu - powiedział.
 
 W kuchni zrobiło się bardzo cicho.
 
@@ -1637,7 +1637,7 @@ Babcia Wiesia odstawiła miskę.
 
 - A nie jest tak?
 
-- Nie - powiedziała babcia. - Ale wtedy tego nie wiedziałam, a potem minęło czterdzieści jeden lat i jakoś nie było okazji.
+- Nie - powiedziała babcia. - Ale wtedy tego nie wiedziałam, a potem minęło sześćdziesiąt pięć lat i jakoś nie było okazji.
 
 Siedziały chwilę w ciszy.
 
@@ -1645,7 +1645,7 @@ Siedziały chwilę w ciszy.
 
 Babcia Wiesia wzięła miskę z powrotem na kolana.
 
-- Widzisz - powiedziała. - To jest właśnie to pytanie, na które nie umiem odpowiedzieć od czterdziestu jeden lat.
+- Widzisz - powiedziała. - To jest właśnie to pytanie, na które nie umiem odpowiedzieć od sześćdziesięciu pięciu lat.
 
 **KONIEC ROZDZIAŁU DZIESIĄTEGO**
 
@@ -2226,7 +2226,7 @@ Rudy kot ziewnął.
 
 Mefisto obrócił głowę.
 
-- To jest, muszę przyznać, najmądrzejsza rzecz, jaką w tym domu powiedziano od czterdziestu jeden lat.
+- To jest, muszę przyznać, najmądrzejsza rzecz, jaką w tym domu powiedziano od sześćdziesięciu pięciu lat.
 
 - Miau - powiedział rudy kot skromnie.
 
@@ -2236,7 +2236,7 @@ Mefisto obrócił głowę.
 
 - Która?
 
-- Stara. Ta na górze. Ona przez czterdzieści jeden lat nie napisała o sobie jednego zdania, bo się bała, że jak je napisze, to przestanie być sobą.
+- Stara. Ta na górze. Ona przez sześćdziesiąt pięć lat nie napisała o sobie jednego zdania, bo się bała, że jak je napisze, to przestanie być sobą.
 
 - To głupie.
 
@@ -2244,7 +2244,7 @@ Mefisto obrócił głowę.
 
 Mefisto wstał, przeciągnął się i powiedział wreszcie to zdanie, dla którego cały ten rozdział istnieje.
 
-- Ona nie rozumie, że prawda o kimś nie jest jedna. Można być kimś, kto zszył księgę, kimś, kto się bał, kimś, kto łuska fasolę, i kimś, kto opowiada od czterdziestu jeden lat tę samą historię o traktorze. To wszystko naraz. Zdanie, które jest prawdziwe, niczego jej nie odbierze. Ona myśli, że prawda to jest nóż. A prawda to jest raczej koc.
+- Ona nie rozumie, że prawda o kimś nie jest jedna. Można być kimś, kto zszył księgę, kimś, kto się bał, kimś, kto łuska fasolę, i kimś, kto opowiada od sześćdziesięciu pięciu lat tę samą historię o traktorze. To wszystko naraz. Zdanie, które jest prawdziwe, niczego jej nie odbierze. Ona myśli, że prawda to jest nóż. A prawda to jest raczej koc.
 
 Zapadła cisza.
 
@@ -2695,9 +2695,9 @@ Florka usiadła przy stole z Księgą i przez bardzo długi czas po prostu patrz
 
 Wiedziała, co się stało. Nie musiała tego czytać ani słyszeć. Wiedziała to od rozdziału siódmego, od kiedy babcia powiedziała, że takiej księgi nie można po prostu zamknąć.
 
-Księga czekała czterdzieści jeden lat na ostatnie zdanie i przestała czekać.
+Księga czekała sześćdziesiąt pięć lat na ostatnie zdanie i przestała czekać.
 
-Zabrała wszystko, co miała, i zamknęła się w sobie, jak ktoś, kto przez czterdzieści jeden lat prosił o jedno i wreszcie przestał prosić.
+Zabrała wszystko, co miała, i zamknęła się w sobie, jak ktoś, kto przez sześćdziesiąt pięć lat prosił o jedno i wreszcie przestał prosić.
 
 Wyjęła ołówek. Ten kupiony za osiem monet i guzik. Ten, który się nie łamie.
 
@@ -2756,7 +2756,7 @@ Księga leżała na kuchennym stole.
 
 Florka położyła obok niej ołówek.
 
-Babcia Wiesia usiadła naprzeciwko, popatrzyła na Księgę, którą zszyła nitką od własnej babci czterdzieści jeden lat wcześniej, i wyciągnęła rękę.
+Babcia Wiesia usiadła naprzeciwko, popatrzyła na Księgę, którą zszyła nitką od własnej babci sześćdziesiąt pięć lat wcześniej, i wyciągnęła rękę.
 
 Florka podała jej ołówek.
 
@@ -2772,7 +2772,7 @@ Była jedyną pustą stroną w całej Księdze, bo wszystkie inne były zapchane
 
 Florka wiedziała, że ostatnie zdanie musi być prawdziwe.
 
-I wiedziała, czego babcia bała się przez czterdzieści jeden lat: że jak napisze o sobie coś prawdziwego, to przestanie być kimkolwiek innym. Że prawda jest jak podpis. Że jak się raz napisze „nie byłam traktorem", to już nigdy nie będzie się tą osobą, która przez całe życie opowiadała, że była.
+I wiedziała, czego babcia bała się przez sześćdziesiąt pięć lat: że jak napisze o sobie coś prawdziwego, to przestanie być kimkolwiek innym. Że prawda jest jak podpis. Że jak się raz napisze „nie byłam traktorem", to już nigdy nie będzie się tą osobą, która przez całe życie opowiadała, że była.
 
 Florka miała sześć lat i nie umiała tego wszystkiego pomyśleć w taki sposób.
 
@@ -2940,6 +2940,6 @@ Wstała, poszła do kuchni i nasypała mu jedzenia, bo miała sześć lat, umia�
 
 - Mchowo Górne nadal jest zamknięte. Remont trwa.
 - Plakusy mają teraz kamień, trzy ulice i ambicje.
-- Zdzisiu ma w torbie jeszcze jedenaście przesyłek sprzed czterdziestu jeden lat.
+- Zdzisiu ma w torbie jeszcze jedenaście przesyłek sprzed sześćdziesięciu pięciu lat.
 - Nikt nigdy nie sprawdził, co jest napisane na okładce Księgi. Florka rozpoznała trzy litery w rozdziale pierwszym i nigdy nie wróciła do reszty.
 - Guzik zaczyna we wrześniu naukę czytania. Boże, dopomóż literom.
